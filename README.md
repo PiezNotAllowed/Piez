@@ -1,1 +1,0 @@
-You are allowed to use this repos. however you will have to credit me.
